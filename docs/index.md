@@ -1,40 +1,17 @@
-दिन मेरे बीतते है बज़्म-ओ-जाम के बीच
+Din mere beet'te hai bazm-o-jaam ke beech 
+Raat guzarti hai diwar-o-baam ke beech
 
-रातें गुज़रती है दीवार-ओ-बाम के बीच
+Neend ki talaash me ye socha kabhi wo
+bhaagta hu khaabo ke aawaam ke beech
 
+Mere naseeb me thi musalsal daurne ki saza
+so mujhe chain bhi nahi aaram ke beech
 
+jiske aane se chahak uthi thi saari dukaanein 
+toot gaya wo shay bazaar-o-daam ke beech 
 
-नींद की तलाश में कभी ये सोचा कभी वो
+thi toofanein har din, aafatein bhi kam nahi
+par peepal khada raha itne kohraam ke beech
 
-भटकता हूँ मैं ख्वाबों के आवाम के बीच
-
-
-
-मेरे नसीब में थी मुसलसल दौड़ने की सज़ा
-
-सो मुझे चैन नहीं मिलता आराम के बीच
-
-
-
-जिसके आने से चहक उठी थी सारी दुकानें
-
-टूट ही गया वो शय बाज़ार-ओ-दाम के बीच
-
-
-
-थी तूफ़ानें कई, आफ़ते भी कम कहाँ थी
-
-पर पीपल खड़ा रहा इतने कोहराम के बीच
-
-
-
-यूँ तो मैं काईल नहीं हूँ जंगों-फसाद का पर
-
-कोई आके दिखाए मेरे और मदाम के बीच
-
-
-
-खानाबदोश हूँ और इक घर की तलाश है
-
-सुना है इक खाली जगह है तेरे नाम के बीच
-
+Yun to kaayil nahi hu jung-o-fasaad ka par
+Koi aake dikhaaye mere aur madaam ke beech 
